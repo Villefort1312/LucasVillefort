@@ -2,7 +2,7 @@
 🎓 Tenho 19 anos  
 🏫 Estudo na faculdade **Ibmec** – 2º período  
 💼 Trabalho na **Shud**  
-📫 Contato: [lucasvmc2005@icloud.com](mailto:lucasvmc2005@icloud.com)
+📫 Contato: [villefort@shud.com.br](mailto:villefort@shud.com.br)
 
 ## 💡 Sobre mim
 - Sou de Belo Horizonte – MG, 
